@@ -1,5 +1,4 @@
-![download (41)](https://github.com/user-attachments/assets/d174ed14-e76c-4056-afa9-18134cdee998)  r u sik of me :/
-
+  r u sik of me :/ ![output-onlinegiftools (1)](https://github.com/user-attachments/assets/9b7126cd-09b9-4e4b-8bd0-3ff01c58e147)
 
 
 
