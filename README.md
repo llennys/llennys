@@ -1,4 +1,5 @@
-  r u sik of me :/ ![download (40)](https://github.com/user-attachments/assets/bf264110-aa24-405b-a1d4-e08ba9dcec13)
+we'll be okay i love yu and b safe ![9517876e-047c-4253-a6fd-50a7a0918c94](https://github.com/user-attachments/assets/94fb5b0e-bec9-4d2b-918f-918202cf11e7)
+
 
 
 
