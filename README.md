@@ -4,7 +4,7 @@
 
 me
 
-if yer frum ponytown u cn talk to me, idm! but be warned i hardly interact w peopl 
+not atall active 
 
 
 
