@@ -6,7 +6,7 @@
 
 me
 
-active during summer sorry im EMPLOYED FUCKK
+semi active during summer sorry im EMPLOYED FUCKK
 
 
 
