@@ -21,7 +21,7 @@
 
 me
 
-semi active during summer sorry im EMPLOYED FUCKK
+semi active sorry im EMPLOYED FUCKK
 
 
 
