@@ -12,8 +12,7 @@
     Len/Rust
     
          semi active sorry im EMPLOYED FUCKK
-       
-        True Detective, American psycho, Kill Bill,  Nice guys - Etc (Ask me what im into^^)
+       True Detective, American psycho, Kill Bill,  Nice guys - Etc (Ask me what im into^^)
         
 
 
