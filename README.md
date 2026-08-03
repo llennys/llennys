@@ -1,5 +1,5 @@
 
-![ezgif-44649d4912dddc](https://github.com/user-attachments/assets/bb3a81fb-e4a5-4f5e-8ee9-30e4e834c9fb)
+![ezgif-44649d4912dddc](https://i.pinimg.com/originals/ca/2b/ee/ca2beed5c7b37093823be5e856e16c3d.gif)
 
 
 
@@ -8,9 +8,9 @@
 
 
 
-me
+                   Len/Rust
+         semi active sorry im EMPLOYED FUCKK
 
-semi active sorry im EMPLOYED FUCKK
 
 
 
