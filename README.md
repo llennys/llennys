@@ -10,7 +10,7 @@
 
 ( 🍓 )　಄　↓   int! ↓　 ಄ ( 🌹 )
 
-𑣲⋆ True detective  -  Ouran Host Club  -  Hannibal  -  of Zelda ᝰ.ᐟ
+𑣲⋆ True detective  -  Ouran Host Club  -  Secretary  - Zelda ᝰ.ᐟ
 
  ( "дﾟ)つ Bye ᵎᵎ 🍒
 
