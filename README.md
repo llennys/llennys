@@ -1,6 +1,6 @@
 <p align="center">
 
-  <img src="https://github.com/user-attachments/assets/4ff1a06c-20d0-4ceb-9f23-e87773a0fd30" />
+  <img src="https://github.com/user-attachments/assets/06db488b-c35c-4a47-84d8-351c675bec0e" />
 
 
 </p>
@@ -8,11 +8,16 @@
 
 𓏲 ࣪. . ໑　 _Rust_   ໑  . ..　 **dni** 13-
 
-( 🍥 )　಄　↓   int! ↓　 ಄ ( 🍰 )
+( 🍓 )　಄　↓   int! ↓　 ಄ ( 🌹 )
 
 𑣲⋆ True detective  -  Ouran Host Club  -  Hannibal  -  of Zelda ᝰ.ᐟ
 
- ( "дﾟ)つ Bye ᵎᵎ 🧁
+ ( "дﾟ)つ Bye ᵎᵎ 🍒
+
+
+ <p align="center">
+
+  <img src="https://github.com/user-attachments/assets/640cf4b5-9101-4d52-8b27-377b646fb4ed" /> 
 
 </div>
         
