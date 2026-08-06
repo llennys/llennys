@@ -8,10 +8,15 @@
 
 𓏲 ࣪. . ໑　 _Rust_   ໑  . ..　 **dni** 13-
 
+Minor !
+
 ( 🍓 )　಄　↓   int! ↓　 ಄ ( 🌹 )
 
 𑣲⋆ True detective  -  Ouran Host Club  -  Secretary  - Zelda ᝰ.ᐟ
 
+𑣲⋆ Madoka Magica  - NGE  -  ZZZ  ᝰ.ᐟ
+
+ 
  ( "дﾟ)つ Bye ᵎᵎ 🍒
 
 
