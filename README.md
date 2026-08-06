@@ -11,7 +11,8 @@
 
     Lennon/Rust
     
-         semi active sorry im EMPLOYED FUCKK
+         semi active sorry im EMPLOYED F
+          13/Under dni  - Dnc, No inspo
        True Detective, American psycho, Kill Bill,  Nice guys - Etc (Ask me what im into^^)
         
 
