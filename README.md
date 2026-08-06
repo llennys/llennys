@@ -1,4 +1,8 @@
 <p align="center">
+<img src="https://komarev.com/ghpvc/?username=Haruhei&style=plastic&color=9f1135&label=cuties" alt="profile view counter">
+</p>
+
+<p align="center">
 
   <img src="https://github.com/user-attachments/assets/06db488b-c35c-4a47-84d8-351c675bec0e" />
 
