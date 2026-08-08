@@ -18,7 +18,7 @@ Minor !
 
 𑣲⋆ True detective  -  Ouran Host Club  -  Secretary  - Zelda ᝰ.ᐟ
 
-𑣲⋆ Madoka Magica  - NGE  -  ZZZ  ᝰ.ᐟ
+𑣲⋆ Madoka Magica  - NGE - Deltarune -  ZZZ  ᝰ.ᐟ
 
  
  ( "дﾟ)つ Bye ᵎᵎ 🍒
